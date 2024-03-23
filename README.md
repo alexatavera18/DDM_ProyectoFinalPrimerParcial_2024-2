@@ -1,2 +1,4 @@
-Video del proyecto:
+Video del proyecto en equipo completo:
 https://youtu.be/No66u54EGp0
+video del equipo de dos:
+https://youtu.be/jWyFBdbT6ds?si=FLAPCYZA9eAdGz-Y
